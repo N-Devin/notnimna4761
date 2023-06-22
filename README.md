@@ -1,5 +1,5 @@
 # 💫 About Me:
-Just a software engineering student at the University of Calgary trying to make his mark.<br>Currently in my second year of studies seeking internships.<br><br>On the side, I enjoy working out and playing my guitar.<br>
+Just a software engineering student at the University of Calgary trying to make his mark.<br>Currently in my third year of studies seeking internships.<br><br>On the side, I enjoy working out and playing my guitar.<br>
 
 
 ## 🌐 Socials:
